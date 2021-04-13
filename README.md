@@ -1,2 +1,2 @@
 # SummerCamping
-Create a plan for a summmer camping trip
+Create a plan for a summer camping trip
