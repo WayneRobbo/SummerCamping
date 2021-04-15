@@ -10,3 +10,6 @@ The suggestion would be to bring food that does not require a fridge, so the fol
   5. canned tuna
   6. marshmallows 
   7. popcorn
+
+## Transport to the glamping site?
+My sugesstion would be to use a bus company that would be able to drop us to the glamping treehouse and return when our staay has ended.
